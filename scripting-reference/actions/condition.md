@@ -1,1 +1,1 @@
-# Description
+Hello, I want to verify my account because I want to publish videos on YouTube, because I have a channel with 12 thousand subscribers, so my account must be verified so that my identity is not stolen. Thank you.
